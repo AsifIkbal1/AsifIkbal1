@@ -3,7 +3,7 @@
 <h1 align="center">Hi 👋, I'm Md Asif Ikbal</h1>
 <h3 align="center">A boy trying to Figure-Out the problem from data.</h3>
 
-<img align="middle" alt="Coding" width="400" src="https://media-exp1.licdn.com/dms/image/C4E22AQE7L_IqB-SqFg/feedshare-shrink_2048_1536/0/1628131283704?e=1631145600&v=beta&t=qpA7qCMUDwTFhfHnOLLgU8apxQdoZTbJYYlgExtTcLM">
+![](https://media-exp1.licdn.com/dms/image/C4E22AQEE2FvOhgnAmg/feedshare-shrink_800/0/1628155441445?e=1631145600&v=beta&t=ov3V8DD3908fNNitW4fK76UU--wg9UtG_dSO9PCoH9c)
 
 ![](https://media-exp1.licdn.com/dms/image/C4E22AQFXZ871GDxPlQ/feedshare-shrink_800/0/1628131179041?e=1631145600&v=beta&t=9eeWLeu4ylcCYkbPhh-hu-vbkBgVUt7z-8dhhLys-3Q)
 
