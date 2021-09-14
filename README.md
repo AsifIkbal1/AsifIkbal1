@@ -6,6 +6,16 @@
 
 <h3 align="center">A boy trying to Figure-Out the problem from data.</h3>
 
+![](https://media-exp1.licdn.com/dms/image/C4E22AQFXZ871GDxPlQ/feedshare-shrink_800/0/1628131179041?e=1634774400&v=beta&t=UUKrc3cLdWoM9g3XuAdtKIwX_wrB5twLEsMPRJHLsuI)
+
+
+
+
+
+
+
+
+
 
 
 ![](https://media-exp1.licdn.com/dms/image/C4E22AQFXZ871GDxPlQ/feedshare-shrink_800/0/1628131179041?e=1631145600&v=beta&t=9eeWLeu4ylcCYkbPhh-hu-vbkBgVUt7z-8dhhLys-3Q)
