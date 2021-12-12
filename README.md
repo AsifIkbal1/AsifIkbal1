@@ -1,10 +1,4 @@
-![](https://media-exp1.licdn.com/dms/image/C4E22AQE5vBht9CQjYA/feedshare-shrink_800/0/1628245305347?e=1631145600&v=beta&t=SiODK0MCDE7R0OiKjUqNsZ6tlq2hZ8AzqFrj0Egrfec)
-
-![](https://media-exp1.licdn.com/dms/image/C4E22AQE5vBht9CQjYA/feedshare-shrink_800/0/1628245305347?e=1634774400&v=beta&t=l8Q4jy7l3cAbjASJU-GpQlYELT90wv_geeYzNSd-aeY)
-![](https://media-exp1.licdn.com/dms/image/C4E22AQE5vBht9CQjYA/feedshare-shrink_800/0/1628245305347?e=1638403200&v=beta&t=qxVTf4ms3s6rrxWBggKd7RmHCH9t5N-2d6gmFOf8FTI)
-
-
-
+![](https://media-exp1.licdn.com/dms/image/C4E22AQE5vBht9CQjYA/feedshare-shrink_800/0/1628245305347?e=1642032000&v=beta&t=vH2YRPlt317p8gZna6ROl-2B00riW6rdes_Xf0Skhqg)
 
 
 
@@ -14,9 +8,10 @@
 
 <h3 align="center">A boy trying to Figure-Out the problem from data.</h3>
 
+![](https://media-exp1.licdn.com/dms/image/C4E22AQFXZ871GDxPlQ/feedshare-shrink_800/0/1628131179041?e=1642032000&v=beta&t=AcWv5oXfo0XEzQdIiATADHDay55-f_Tfmr8X5DZRay8)
+![](https://media-exp1.licdn.com/dms/image/C4E22AQEi-_Lk26ow7Q/feedshare-shrink_800/0/1629515604574?e=1642032000&v=beta&t=trF-HWBJ1uETmKWQ-0wWTNQqr9o-BWOAaXW6zIZEVtc)
 
-![](https://media-exp1.licdn.com/dms/image/C4E22AQFXZ871GDxPlQ/feedshare-shrink_800/0/1628131179041?e=1634774400&v=beta&t=UUKrc3cLdWoM9g3XuAdtKIwX_wrB5twLEsMPRJHLsuI)
-![](https://media-exp1.licdn.com/dms/image/C4E22AQFXZ871GDxPlQ/feedshare-shrink_800/0/1628131179041?e=1638403200&v=beta&t=o5c-D7lVTaSJpKUwZXPPqcmv3LvLLhlzeB5KKt7IBVE)
+
 
 
 
